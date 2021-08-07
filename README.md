@@ -1,7 +1,12 @@
-## Dlaczego warto robić biznes w Niemczech?
+# [Dlaczego warto robić biznes w Niemczech? dlaczego.de](https://www.dlaczego.de)
 
 ...
 
+Inne tematy:
+
++ [Zaplanuj Biznes](https://www.zaplanujbiznes.pl/)
++ [Dlaczeo warto i jak zostać rezydentem niemieckim? rezydent.de](https://www.rezydent.de)
++ [Jak zostać nierezydentem polskim? nierezydent.pl](https://www.nierezydent.pl/)
 
 ---
 
