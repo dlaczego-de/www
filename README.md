@@ -1,5 +1,6 @@
 # [Dlaczego warto robić biznes w Niemczech? dlaczego.de](https://www.dlaczego.de)
 
+Ministrona w trakcie aktualizacji...
 ...
 
 Inne tematy:
